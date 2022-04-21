@@ -1,0 +1,1 @@
+# ananurtiana16_191011402228_utskecerdasanbuatan
